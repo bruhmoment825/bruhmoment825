@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me @tikusgakmandi2926
 - 😄 Pronouns: he
-- ⚡ Fun fact: im a big simp
+- ⚡ Fun fact: i love cats
 
 <!---
 bruhmoment825/bruhmoment825 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
